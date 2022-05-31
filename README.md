@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @dixonge
-- 👀 I’m interested in travel, RV life, music, genealogy, rock climbing 
-- 🌱 I’m currently learning how not to kill batteries in an off-grid solar setup
+- 👀 My interests include travel, expat life, music, urban sketching, genealogy, e-bikes, rock climbing 
+- 🌱 I’m currently enjoying retirement in Mexico
 - 📫 How to reach me - comment here, otherwise, if you know me, you already know how to reach me...
 
 <!---
